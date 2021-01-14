@@ -1,0 +1,1 @@
+You have to toast the bread first then you butter them then you grill the patty then you put sauce on the patty then you put it together.
